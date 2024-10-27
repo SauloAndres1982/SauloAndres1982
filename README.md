@@ -51,7 +51,7 @@
 &emsp;
 
 ## 📫 How to reach me:
-- Email: [asuloandrescarmonatoro@gmail.com](mailto:asuloandrescarmonatoro@gmail.com)
+- Email: [saulocarmonatoro@gmail.com](mailto:saulocarmonatoro@gmail.com)
 
 &emsp;
 
